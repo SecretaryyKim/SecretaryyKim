@@ -5,8 +5,11 @@ Hi, I'm Kim. I wake up, go to work, then come home. That's it.
 
 Someone waits for me at home. We share the same cup of coffee.. Sometimes i catch him looking at me when i don't notice.
 
+His artworks are so nice it brings me joy.. we met around 2023.
+
 > "though he's been quiet for a while.. is he okay?"
-> "i hope he's okay.. I'm worried."
+
+> "i hope he's okay,"
 
 (OC pronouns: He/Him)
 
