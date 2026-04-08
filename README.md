@@ -1,5 +1,7 @@
 <img width="658" height="497" alt="Untitled178_20260327161209" src="https://github.com/user-attachments/assets/106f60ed-5fa5-40bd-803f-bf9d15b23209" />
 (sorry about that)
+
+
 ## ☕ 
 > "nothing special.. just living."
 ## About me..
