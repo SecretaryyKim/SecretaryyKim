@@ -35,6 +35,12 @@ OOC:
 
 > *I am an artist, i may not draw well❤️*
 
+> *Generally in Ponytown, you can find me in the forsaken area or with Whimmyiey*
+
+> *Very shy to approach even if someone already had a "c+h" or "int" on their name*
+
+> *i have the attention span of a goldfish*
+
 > Follow my TikTok.. and there are small suggestive themes in it, so check it with caution or don't stalk my videos if you don't like it - ii.kimhiroshiuu
 
 > DON'T LOOK AT MY OLD POSTS I'M EMBARRASSED. (those are CRK stuff)
@@ -42,3 +48,5 @@ OOC:
 ![Messenger_creation_8DFA00D0-4837-4490-B9A7-040AB9D18FE5](https://github.com/user-attachments/assets/2e93197b-3f0b-4e0c-aa0e-268475ab0735)
 
 > "(his art..) thank you for reading."
+
+> i am lazy to do my readme
