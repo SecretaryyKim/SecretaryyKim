@@ -22,3 +22,19 @@ i love latte so much oh my gosh
 OOC:
 
 > hi Ponytown players, please know that I'm kind so please c+h me in there (sorry if i leave the game due to signal problems❤️)
+
+> Small info..
+
+> *Hi, older users can interact, but please keep the interactions respectful and appropriate.*
+
+> *Any pronouns are okay for me*
+
+> *i usually only talk when someone interacts with me first*
+
+> *i reply SLOW if I'm busy*
+
+> *I am an artist, i may not draw well❤️*
+
+![Messenger_creation_8DFA00D0-4837-4490-B9A7-040AB9D18FE5](https://github.com/user-attachments/assets/2e93197b-3f0b-4e0c-aa0e-268475ab0735)
+
+> "(his art..) thank you for reading."
