@@ -23,7 +23,7 @@ OOC:
 
 > hi Ponytown players, please know that I'm kind so please c+h me in there (sorry if i leave the game due to signal problems❤️)
 
-> Small info..
+## Small info..
 
 > *Hi, older users can interact, but please keep the interactions respectful and appropriate.*
 
@@ -34,6 +34,10 @@ OOC:
 > *i reply SLOW if I'm busy*
 
 > *I am an artist, i may not draw well❤️*
+
+> Follow my TikTok.. and there are small suggestive themes in it, so check it with caution or don't stalk my videos if you don't like it - ii.kimhiroshiuu
+
+> DON'T LOOK AT MY OLD POSTS I'M EMBARRASSED. (those are CRK stuff)
 
 ![Messenger_creation_8DFA00D0-4837-4490-B9A7-040AB9D18FE5](https://github.com/user-attachments/assets/2e93197b-3f0b-4e0c-aa0e-268475ab0735)
 
