@@ -37,11 +37,12 @@ hi Ponytown players, please know that i would love if y'all would c+h me there (
 
 > Follow my TikTok.. there are small suggestive themes in it, so check it with caution or don't stalk my videos if you don't like it - ii.kimhiroshiuu 
 
-![Messenger_creation_8DFA00D0-4837-4490-B9A7-040AB9D18FE5](https://github.com/user-attachments/assets/2e93197b-3f0b-4e0c-aa0e-268475ab0735)
+
+<img width="720" height="531" alt="Screenshot_20260414-235518" src="https://github.com/user-attachments/assets/ba3b26b2-5134-4775-80ba-5a53d6cae1e6" />
 
 
 
-> remaked
+> readme is remaked
 
 i still have school ugh
 
