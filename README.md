@@ -38,7 +38,7 @@ hi Ponytown players, please know that i would love if y'all would c+h me there (
 > Follow my TikTok.. there are small suggestive themes in it, so check it with caution or don't stalk my videos if you don't like it - ii.kimhiroshiuu 
 
 
-<img width="720" height="531" alt="Screenshot_20260414-235518" src="https://github.com/user-attachments/assets/ba3b26b2-5134-4775-80ba-5a53d6cae1e6" />
+<img width="719" height="452" alt="Screenshot_20260418-094121" src="https://github.com/user-attachments/assets/534c0104-786a-4234-a16d-2ba5a1d4c5f3" />
 
 
 
