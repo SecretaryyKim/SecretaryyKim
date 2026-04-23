@@ -1,5 +1,6 @@
-<img width="658" height="497" alt="Untitled178_20260327161209" src="https://github.com/user-attachments/assets/106f60ed-5fa5-40bd-803f-bf9d15b23209" />
-(sorry about that)
+<img width="1536" height="2048" alt="1000019373-02" src="https://github.com/user-attachments/assets/b47bd6ec-5858-4dbc-ab35-98b6c4b355a1" />
+
+new art
 
 
 ## ☕ 
