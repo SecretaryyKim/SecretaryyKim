@@ -1,6 +1,6 @@
-<img width="2712" height="2250" alt="1000018305-01" src="https://github.com/user-attachments/assets/fdbd3d62-8618-4e56-820d-17fdd6f8030d" />
+<img width="576" height="854" alt="Screenshot_20260430-160238" src="https://github.com/user-attachments/assets/59e2e83f-ce56-4b0e-88bc-f3b785ca455a" />
 
-pink (NO. THEY ARE NO LONGER THE SAME CHARACTER)
+i love my OC
 
 
 ## ☕ 
