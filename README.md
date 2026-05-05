@@ -1,6 +1,6 @@
-<img width="1536" height="2048" alt="1000019373-02" src="https://github.com/user-attachments/assets/b47bd6ec-5858-4dbc-ab35-98b6c4b355a1" />
+<img width="2712" height="2250" alt="1000018305-01" src="https://github.com/user-attachments/assets/fdbd3d62-8618-4e56-820d-17fdd6f8030d" />
 
-new art
+pink (NO. THEY ARE NO LONGER THE SAME CHARACTER)
 
 
 ## ☕ 
