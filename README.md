@@ -32,6 +32,8 @@ hi Ponytown players, please know that i would love if y'all would c+h me there (
 
 > *i reply SLOW if I'm busy*
 
+> *The loudest player in Ponytown, my chat bubbles covers many players I'm so sorry*
+
 > *I am an artist, i draw and animate*
 
 > *Generally in Ponytown, you can find me in the forsaken area or with my friends and "children"*
