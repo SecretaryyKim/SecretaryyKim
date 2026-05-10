@@ -26,6 +26,8 @@ hi Ponytown players, please know that i would love if y'all would c+h me there (
 
 > *Any pronouns are okay for me*
 
+> *i am bisexual. lele*
+
 > *i usually only talk when someone interacts with me first*
 
 > *i reply SLOW if I'm busy*
@@ -44,7 +46,3 @@ hi Ponytown players, please know that i would love if y'all would c+h me there (
 
 
 > readme is remaked
-
-i still have school ugh
-
-the it the it
