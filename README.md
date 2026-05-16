@@ -1,4 +1,4 @@
-<img width="576" height="854" alt="Screenshot_20260430-160238" src="https://github.com/user-attachments/assets/59e2e83f-ce56-4b0e-88bc-f3b785ca455a" />
+<img width="1080" height="973" alt="Untitled240_20260514211213_1" src="https://github.com/user-attachments/assets/b14804e1-c8e4-4d7c-b55b-1195d4fad9a4" />
 
 i love my OC
 
