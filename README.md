@@ -8,13 +8,11 @@ i love my OC
 ## About me..
 Hi, I'm Kim. I wake up, go to work, then come home. That's it.
 
-Someone waits for me at home. We share the same cup of coffee.. Sometimes i catch him looking at me when i don't notice.
+We share the same cup of coffee. Sometimes i catch him looking at me when i don't notice.
 
-His artworks are so nice it brings me joy.. we met around 2023.
+Ughh, so gay 
 
-> "though he's been quiet for a while.. is he okay?"
-
-> "i hope he's okay,"
+(turns out to be doomed yaoi)
 
 (OC pronouns: He/Him)
 
@@ -26,13 +24,11 @@ hi Ponytown players, please know that i would love if y'all would c+h me there (
 
 > *Any pronouns are okay for me*
 
-> *i am bisexual. lele*
-
 > *i usually only talk when someone interacts with me first*
 
 > *i reply SLOW if I'm busy*
 
-> *The loudest player in Ponytown, my chat bubbles covers many players I'm so sorry*
+> *The loudest player in Ponytown, my chat bubbles covers many players I'm so sorry - although i only talk when I'm with my friends*
 
 > *I am an artist, i draw and animate*
 
