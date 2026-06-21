@@ -10,10 +10,6 @@ Hi, I'm Kim. I wake up, go to work, then come home. That's it.
 
 We share the same cup of coffee. Sometimes i catch him looking at me when i don't notice.
 
-Ughh, so gay 
-
-(turns out to be doomed yaoi)
-
 (OC pronouns: He/Him)
 
 ## Out of character information 
@@ -44,3 +40,5 @@ hi Ponytown players, please know that i would love if y'all would c+h me there (
 
 
 > readme is remaked
+> I love voidburger
+> I love any voidburger
