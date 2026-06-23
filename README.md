@@ -3,7 +3,9 @@
 
 
 i love my OC
-Kim x Marcus doomed yaoi y'all
+
+## Kim x Marcus doomed yaoi y'all
+> guys Marcus is not my OC
 
 
 ## ☕ 
