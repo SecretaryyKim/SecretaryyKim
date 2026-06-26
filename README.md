@@ -1,9 +1,5 @@
 <img width="720" height="323" alt="1000009590" src="https://github.com/user-attachments/assets/5c82b11e-995b-4b77-8469-9ab93ff5dd13" />
 
-## Kim x Marcus doomed yaoi y'all
-> guys Marcus is not my OC
-
-
 ☕ 
 > "nothing special.. just living."
 ## About me..
@@ -13,7 +9,9 @@ Hi, I'm Kim. I wake up, go to work, then come home. That's it.
 
 ## Out of character information 
 
-hi Ponytown players, please know that i would love if y'all c+h me (might leave though)
+please please c+h any time, I'm very kind but my messages often looks dry sorry
+
+c+h anytime! Don't cover unless friends and when cuddling :) 
 
 > *older users can interact, but please keep the interactions respectful and appropriate.*
 
@@ -21,11 +19,11 @@ hi Ponytown players, please know that i would love if y'all c+h me (might leave 
 
 > *i usually only talk when someone interacts with me first*
 
-> *i reply SLOW if I'm busy*
+> *often busy*
 
 > *I am a small artist, i draw and animate*
 
-> *in Ponytown, you can find me in the forsaken area or with my friends and "children"*
+> *in Ponytown, you can find me in the forsaken area or with my friends*
 
 > *Very shy to approach*
 
