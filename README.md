@@ -9,7 +9,7 @@ Hi, I'm Kim. I wake up, go to work, then come home. That's it.
 
 ## Out of character information 
 
-please please c+h any time, I'm very kind but my messages often looks dry sorry
+please please c+h with me, I'm very kind but my messages often looks dry sorry
 
 c+h anytime! Don't cover unless friends and when cuddling :) 
 
